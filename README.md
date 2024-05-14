@@ -2,7 +2,7 @@
 - 👀 I’m interested in programing
 - 🌱 I’m currently learning pyton
 - 💞️ I’m looking to collaborate on all of you
-- 📫 How to reach me send me the messagge on my gmail:donttouchmymoneywertex@gmail.com
+- 📫 How to reach me:send me the messagge on my gmail:donttouchmymoneywertex@gmail.com
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
