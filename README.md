@@ -2,7 +2,8 @@
 - 👀 I’m interested in programing
 - 🌱 I’m currently learning pyton
 - 💞️ I’m looking to collaborate on all of you
-- 📫 How to reach me:send me the messagge on my gmail:kkjun11ccat
+- 📫 How to reach me:send me the messagge on my gmail:kkjun11ccatm@gmail.com
+  
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
